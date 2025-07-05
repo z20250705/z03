@@ -13,6 +13,6 @@
 平台采用广告支持的方式运营，确保用户不会遭遇订阅费用或隐性收费，同时保障用户隐私，采用HTTPS加密保护个人信息。界面简洁，搜索功能强大，让你轻松找到感兴趣的影片，支持手机、电脑等多种设备观看，随时随地都能畅享日本AV免费影片。
 这些平台为你提供无广告、高清、快速、且安全的观影体验，是你观看日本AV免费资源的最佳选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z03 ）</span>
 
 
